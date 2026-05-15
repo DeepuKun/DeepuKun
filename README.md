@@ -107,4 +107,3 @@
 
 ---
 
-> “Break the rules, stay aesthetic, stay artistically.” 🎭
